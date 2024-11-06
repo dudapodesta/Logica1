@@ -1,4 +1,4 @@
-PDF atualizado em: 07/05/2024<br>
+PDF atualizado em: 06/11/2024<br>
 ATENÇÃO: PDF em conjunto com matéria do segundo ano, por enquanto estamos no capítulo 3.<br>
 Atividades valendo visto: exercícios 3, 5 e 7 da seção 3.5 
 
